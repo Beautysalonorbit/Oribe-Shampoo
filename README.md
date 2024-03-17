@@ -1,2 +1,4 @@
-# Oribe-Shampoo
+ Oribe-Shampoo
 Oribe Shampoo is a luxurious hair care product known for its high-quality
+ingredients and exceptional performance. Infused with a blend of antioxidants, vitamins, and botanical extracts, Oribe Shampoo nourishes and hydrates the hair while gently cleansing away impurities and buildup. This premium shampoo is formulated without harsh sulfates or parabens, making it suitable for all hair types, including color-treated hair. Oribe Shampoo leaves the hair feeling soft, smooth, and manageable, with a luscious scent that lingers throughout the day. Loved by hairstylists, celebrities, and beauty enthusiasts alike, Oribe Shampoo elevates the hair washing experience to a spa-like indulgence. With regular use, it helps improve the overall health and appearance of the hair, leaving it looking vibrant, glossy, and full of life. Whether you're seeking to maintain your hair's natural beauty or restore its vitality, Oribe Shampoo is a must-have addition to your hair care routine.
+https://beautysalonorbit.com/oribe-shampoo/
